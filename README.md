@@ -1,0 +1,2 @@
+# Kecerdasanbuatan_UTS
+nadia
